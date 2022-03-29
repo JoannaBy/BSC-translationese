@@ -1,0 +1,1 @@
+# Results for the project *Stylometric investigations into translationese: The Baby-Sitters Club across languages*
